@@ -58,7 +58,7 @@ Responsible for remote editing live camera switching of interviews, collecting a
 
 <b>Building Manager</b>
 
-***Howard Gittis Student Center*** / 2019 - 2021
+***Howard Gittis Student Center*** / 2019 - 2020
 
 Responsible for the setup and break down of various event spaces and opening/closing duties for the building.
 
