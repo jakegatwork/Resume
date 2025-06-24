@@ -25,6 +25,7 @@ Creator and Writer at Green Thumbs Magazine, an independent website covering vid
 Responsible for developing the brand’s tone, design, and recurring article ideas.
 
 Manager of the brand's social media presence, resulting in over 130,000 views in the last 12 months.
+
 -----------------------
 
 <b>Video Editor</b>
