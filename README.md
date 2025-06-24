@@ -32,23 +32,13 @@ Manager of the brand's social media presence, resulting in over 130,000 views in
 
 ***Rooster Teeth Productions*** / 2022 - 2024
 
-Edited and produced over 150 high-quality, engaging long and short-form videos for YouTube and other
-platforms with over 15,000,000 followers, ensuring content meets brand standards and resonates with
-the audience through the use of appropriate video files, motion graphics, project templates, and audio
-stems.
+Edited long-form multi-camera gameplays, podcasts, and vlogs using the Adobe Creative Suite.
 
-Created and designed 2-5 different metadata sets per video including thumbnails, titles, descriptions, and
-popular SEO tags.
+Was responsible for creating metadata sets for each video which included: thumbnails, titles, descriptions, and search engine optimization tags. 
 
-Managed and reviewed the work of a small team of 2-3 other editors to ensure daily content and uploads
-were met from project start to finish in a timely manner within brand standards and budget.
+Managed and reviewed the work of a small team of 2-3 other editors to ensure daily content and uploads were met from project start to finish promptly within brand standards and budget.
 
-Partnered with paid clients to deliver branded content across various lifestyle, tech, and gaming
-campaigns, ensuring deliverables met brand objectives and maintained authenticity.
-
-Facilitated and created diverse video and thumbnail templates and assets for the relaunch of the “Let’s Play” brand.
-
-Worked in various 3D game and program environments for recording video b-roll.
+Partnered with paid clients to cut branded ad content across various lifestyle, tech, and gaming campaigns while ensuring deliverables were on time.
 
 ----------------------
 
