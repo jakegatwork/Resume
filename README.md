@@ -46,9 +46,9 @@ Partnered with paid clients to cut branded ad content across various lifestyle, 
 
 ***The Michael Smerconish Program*** / 2021 - 2022
 
-Edited and created daily videos for 70,000 subscribers and newsletter readers.
- 
-Responsible for remote editing live camera switching of interviews, collecting assets through an internal ftp, multicam editing and adding related graphics, creating thumbnails daily thumbnails, and managing daily YouTube uploads and functions.
+Lead the direction of the Michael Smerconish Program YouTube channel and social media presence that boasted over 70,000 active followers and newsletter subscribers. 
+
+Directed and edited live recorded interviews daily for publishing on YouTube, Twitter, and Instagram.  
 
 ----------------------
 
@@ -56,7 +56,11 @@ Responsible for remote editing live camera switching of interviews, collecting a
 
 ***Howard Gittis Student Center*** / 2019 - 2020
 
-Responsible for the setup and break down of various event spaces and opening/closing duties for the building.
+Managed a 212,000 sq ft. facility with 6 service areas, 17 event spaces, and 11 Temple University departmental offices. 
+
+Utilized live production equipment including: Sound Mixers, ETC Light Boards, PA Speakers, and Wireless Microphones. 
+
+Maintained various mobile computer and audio stations for event spaces.
 
 ----------------------
 
