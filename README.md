@@ -6,11 +6,13 @@
  
  ***Freelance*** / 2022 - Present
  
-Edit for and work directly with influencers and clients with up to 1,500,000 followers to produce video and and metadata content for multiple platforms including YouTube, TikTok, and Twitch.
+Edit long-form multi-camera gameplays, podcasts, and vlogs using the Adobe Creative Suite.
 
-Work closely and communicate directly with clients ensuring all project specifics are met. Including adding specific channel branding, video formats, and 2-5 different project metadata sets.
+Responsible for coordinating with on-screen talent to download, edit, and make revisions based on feedback in a timely manner.
 
-Responsible for downloading, utilizing, and creating various video b-roll, graphics, and audio assets at clients request while meeting tight deadlines.
+Created a dedicated server for fellow editors to download, upload, and source assets when needed.
+
+Produced and Edited 150+ videos amassing over 10,000,000 views to date.
 
 ----------------------
 
@@ -18,8 +20,11 @@ Responsible for downloading, utilizing, and creating various video b-roll, graph
 
 ***Green Thumbs Magazine*** / 2024 - Present
 
-Creator, Writer, and Reviewer
+Creator and Writer at Green Thumbs Magazine, an independent website covering video games.
 
+Responsible for developing the brand’s tone, design, and recurring article ideas.
+
+Manager of the brand's social media presence, resulting in over 130,000 views in the last 12 months.
 -----------------------
 
 <b>Video Editor</b>
